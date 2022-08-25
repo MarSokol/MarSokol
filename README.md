@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MarSokol
 - 👀 I’m interested in friend from work Beniamin.
-- 🌱 I’m currently learning how to breave under water.
+- 🌱 I’m currently learning how to breathe under water.
 - 💞️ I’m looking to collaborate on yo mama.
 - 📫 How to reach me ... do not.
 
